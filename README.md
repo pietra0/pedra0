@@ -1,1 +1,7 @@
-# pedra0
+- ### Olá, seja bem-vindo ao meu perfil! 💐
+-  Meu nome é Pietra Manfé Velozo ❤️
+- Estou pesquisando na Alura o repositório de cursos digitais
+- Utilize aqui para compartilhar meus projetos ⏳
+- Para entrar em contato comigo: e-mail
+- ➡️ pietra.velozo@escola.pr.gov.br 📩
+- Estou visitando a Alura
